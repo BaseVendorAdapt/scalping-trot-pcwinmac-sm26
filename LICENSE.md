@@ -1,4 +1,4 @@
-# 
+# Open Source scalping trading bot modèles pour Mac OS | Intelligent scalping trading bot modèles pour PC Windows. Avec ordres take-profit et optimisation des frais de gaz — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
